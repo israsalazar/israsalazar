@@ -32,4 +32,4 @@ Próximamente compartiré aquí mis proyectos de desarrollo:
 ## 📫 Contacto
 
 Puedes encontrarme en LinkedIn.
-https://www.linkedin.com/public-profile/settings/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact_info%3Bf5AHgu7eQnuWXOYAFGibBA%3D%3D
+https://www.linkedin.com/in/alejandro-israel-p%C3%A9rez-salazar-2867ba448/
